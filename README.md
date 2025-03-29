@@ -1,4 +1,5 @@
-# **Carter Keel**
+### **Carter Keel**
+___
 
 **Passionate Video Editor 🎥 Aspiring Cybersecurity 🔐 IT Specialist 🖥️**
 
