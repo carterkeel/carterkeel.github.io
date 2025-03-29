@@ -20,7 +20,7 @@ ___
 ### **Experiance**
 Edited videos for [Nerd Cave](https://www.youtube.com/@Nerdcavenetwork}), [Bible Caddie](https://www.youtube.com/@BibleCaddie), [Jason Clark](https://www.youtube.com/@JasonClarkIS-youtube), [Dr. Jim Harris](https://www.youtube.com/@DrJimHarris), and more...
 
-Competed in [Cyber Seed](https://cyberskyline.com/events/cyberseed/leaderboard), competition on "Team 3" and was in the top 25%...
+Competed in [Cyber Seed](https://cyberskyline.com/events/cyberseed/leaderboard), competition on "Team 3" and was in the top 25%.
 
 
 
