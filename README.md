@@ -22,5 +22,9 @@ Edited videos for [Nerd Cave](https://www.youtube.com/@Nerdcavenetwork}), [Bible
 
 Competed in [Cyber Seed](https://cyberskyline.com/events/cyberseed/leaderboard), competition on "Team 3" and was in the top 25%.
 
+Created a homeserver that blocks ads and malware network wide.
+
+[University of West Florida](uwf.edu) cybersecurity undergraduate.
+
 
 
