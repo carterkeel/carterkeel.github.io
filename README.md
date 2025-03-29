@@ -28,7 +28,7 @@ Created a homeserver that blocks ads and malware network wide.
 
 ___
 
-![Glasses Logo](glasses_small_png)
+![Glasses Logo](glasses-small_png)
 
 
 
