@@ -8,6 +8,6 @@ Quick learner with excellent problem-solving skills, committed to continuous gro
 ___
 <center>
   
-**[YouTube](https://www.youtube.com/@RandomButCool)** 🔴 |  **[Instagram](https://www.instagram.com/carterbkeel/)** 🟡
+  **[YouTube](https://www.youtube.com/@RandomButCool)** 🔴 |  **[Instagram](https://www.instagram.com/carterbkeel/)** 🟡
 
 </center>
